@@ -1,0 +1,35 @@
+# The Performance
+
+[Dress](https://cdn77.gemgrace.com/29926-thickbox_default/sparkly-sequined-gold-ball-gown-prom-dress-with-off-shoulder-straps.jpg)
+
+On the stage, Clara appears as the image of a young, noble lady. With her long pink hair tied in a tight beehive above her head, her neck felt unusually cold and it gave her a quiet discomfort, like someone was watching her from behind. The performance gown she wore was heavy, and allowed for little movement. It was, of course, made to stand out. She looked like a storybook princess, with trains and flows and layered fabrics to cover her porcelain, well made skin. She commented earlier though that, with the way the hips flared out, she looked like a silly, yellow, upside-down bell in the stupid thing. A comment she later felt the need to apologise for. 
+
+The material was sequined gold so that she would sparkle in the glow of candlelight, and she wore jewellery from her Nonna that shone brightly when it caught the light. For the duration of her time on stage, her ribage had been crushed mercilessly by her corset, and she couldn't wait to get rid of the damn thing. She was told, though, that she did have to do her best to appear pretty for any of the young men that might be watching.
+
+As the sixth piece ends, she turns her head slightly to spy her friends in the audience, and it makes her cheeks lift in a soft smile. The little moments between her set pieces were always the most nervewracking for her, and seeing Britt's confident glower or Ashnar's serene presence always reassured her. Taking a deep breath, she spoke forwards, directing her eyes at the opulent chandelier of the greathall. She was taught by a butterfly prince, the most nervous and flippant of the fey, that talking to the wind above people's heads was a way of pushing down the feelings of her stomach.
+
+"Thank you, everybody," pausing to swallow hard, "I hope that you'll enjoy my last piece this evening... I..." she clears her throat, "As a celebration of the young master's ascension to adulthood, and as a gift from our family, I humbly strung together a few notes for him, though I had to borrow from someone a little better at composition than I..." she smiles awkwardly with her small joke, whether it receives a chuckle or not. "In dedication for Willem Gilden, Partita and Gigue in the key of E."
+
+[First song](https://www.youtube.com/watch?v=5tjl07RmEQg)
+
+She lifts her bow and sucks in a small breath as she starts to draw it across the strings. The piece is bright and airy, with a combination of punctuating notes and baseline chords that make it seem as if two violins are playing in harmony. The complexity of the work is obvious, and borrowed many of the old masters' techniques and structures. It wouldn't be out of place in any music hall from two-hundred years ago.
+
+Looking down at her violin as she plays, she rotates her body to peer over the strings and into the audience.  Curiously, and the friends would have all noticed this, Clara's eyes were open for the entire performance. Her usual technique of needing to squeeze them shut to stop her stage-fright was apparently gone. However, as she played it was apparent to only the ones that knew her best that the performance  was strange.
+
+Metronomically perfect, rhythmically in time with accents and dynamics in the right places. The piece was 'correct' to the point of suffocation. Much like the baroque structures of the music theory around the piece, much like the corset around her waist, her well taught manners, well done hair and the face that was caked in hot makeup, it was all 'perfect'. The usual trills, energy and flares that she'd put into her music were gone. The cheeky winks and squeaks that made children laugh were absent. In this moment she was a Steibelt performer, playing a Steibelt violin, for an audience that would judge every inch of her that wasn't perfect. Most importantly though, despite the bright, major key of the piece, she didn't wear her usual smile.
+
+As the prelude draws to a close, she closes her eyes and her chest lifts with a deep breath in the small moment between movements. Suddenly, smoke bursts forth from the floor, and for a moment the sequined princess is entirely obscured from vision. Inside the smoke, Clara dismisses the silent image enchantment she'd been maintaining the entire time. 
+
+[Second song](https://youtu.be/bQagZh4W58c?si=NzJiq5qypWwqjJNM&t=211)
+
+[Second Dress](https://i.kym-cdn.com/photos/images/original/001/178/749/89e.jpg)
+
+Bursting forth from the smoke she re-appeared in a fey dancer's outfit, gripping her expensive, family violin fiercely like a cheap fiddle and clamping her eyes dead shut. 
+
+The new outfit was incredibly revealing, seemingly held together with ribbons and cords, her midriff and thighs were completely exposed. It was little more than some unsewn strips of cloth, carelessly draped over shoulder and flowing freely like a river behind her as she moved vigorously. Her hair was also let down and whirled in every direction around her with the rest of her body's motions.
+
+With ribbons, bells and tassles flowing from her arms as she played, she stomped merrily as she did terrible things to her violin. Playing the "Gigue" or, in modern common "Merry Jig", she fiercely and passionately attacked her violin, the silk and satin cloth twisted and danced around her as she spun and skipped around and around, going from the left of the stage to the right. A big grin appeared on her face. The beat was punctuated with her own, very unladylike stomping as she kept the timing with her entire body. The song itself had none of the perfection of the first half. There were runs that went nowhere, trills and decorations that existed solely for her own pleasure and fortes that were obnoxiously loud and merry. There was nothing practiced, measured or rehearsed about it, the notes simply burst into the room and rang as loud as they wanted to the beat of her stamping and jumping.
+
+As she played on stage, she seemed much more like the small brat that ran barefoot in the city streets with Meilin, always trying to catch up. The one who laughed when she played with Tiv's latest toys and picked through the scrapyard to help his inventions, or who scolded Marcus whenever he was nursing his bruises after stopping a fight with the older bullies. Drinking tea with Ashnar while speaking of the future and of magic, trying her best to stay on Britt's good side but still joining her on the pranks they'd play. Rather than the carefully politik woman that her family had put on the stage, the girl that danced before them was something else, a simple, fourteen-year-old that liked to play music on endless summer days with her dear friends. A girl who worked at a tavern and made people smile and laugh when she fell off a barrel. A girl so incredibly nervous that she still couldn't open her damn eyes when she played for other people.
+
+The song ended with a shrill high note that she squeaked loudly on purpose and she victoriously thrust her bow into the air. Taking a breath, she bowed slowly and hurried off stage as soon as she could. 
