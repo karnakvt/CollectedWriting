@@ -352,7 +352,7 @@ Titania shook her head from side to side, silently. "It is as the devil said, mi
 
 "... and the four months previous?" The goblin scoured the sheet in front of him, as an overlarge quill scribbled notes next to him.
 
-Titania responded, "She was beset by a terrible depression. I allowed her the maximum possible extension, as stipulated in the contract, to ease her emotional distress." She took a small pause, clearing her throat, "Failing a sea elf trial in Lelenaes Aiqua was the cause. Again, she found the awarded powers insufficient."
+Titania responded, "She was beset by a terrible depression. I allowed her the maximum possible extension, as stipulated in the contract, to ease her emotional distress." She took a small pause, clearing her throat, "Failing a sea elf trial in Lelenaes Aiqua was the cause. Again, she found the awarded powers insufficient to protect her friends."
 
 The Wretched devil judge leaned forward, "Surely, Queen Titania, you're not suggesting to a court that represents powers of the cosmos that there was a circumstance where the power of the Feywild and the Seelie court were insufficient in tackling mortal affairs??"
 
