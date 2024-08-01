@@ -394,7 +394,7 @@ Clara tucked her chin slightly, "I can't believe... you broke it for me..."
 
 "I can't believe you played chicken with the cosmos," Titania's voice reverberated from the shadowed hood. Reaching into the folds of its cloak, the figure spoke, "A final gift from me," she said softly. "You're a rare mortal, Clara. The way your soul shines is unique in so many ways." From the folds of its cloak, Clara was presented with an old, intricately engraved, though elegantly plain cherrywood violin and bow.
 
-Clara reached out and took it, her hands trembling, "Truly... I thought I was going to die... is this... is..." Clara turned the fiddle over in her hand, inspecting the workmanship and quality. Her voice lost from surprise.
+Clara reached out and took it, her hands trembling, "Truly... I thought I was going to die... is this... is..." Clara turned the fiddle over in her hand, inspecting the workmanship and quality. Her voice lost from surprise. The signature unmistakable, Antonio Steibelt.
 
 Titania spoke, "... a violin. Crafted at my request by the pirate fiddler, Antonio Steibelt," she said simply, "A personal friend of mine, and your great grandfather. Using techniques only he knew, and wood supplied by the oldest woods of the feywild. Grown by spriggans and blessed by owlbears. From a wood that sings the songs of morning and whispers the hymns of night. Strung by silk of feyspider and played exclusively in my personal court."
 
