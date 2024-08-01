@@ -96,7 +96,7 @@ Clara looked back at the governness. When prompted, almost a thousand responses 
 
 Ms. Hardgreaves trembled and stiffened, "I would do it for pleasure."
 
-Clara giggled, stepping away, "Of course, mum," she rested her hands in her lap, and then bunched the sides of her skirt to effect a small curtsy, "Your lessons were unforgiving, and every day in your care was suffering." Taking a small pause, she continued, "But truly, Madam Hardgreaves, the things you taught me over these years was so helpful. Nobody's as awful as you are, and it makes dealing with nobles so easy! I just thank the Gods that I'm not in one of your lessons and they're so delightful."
+Clara giggled, stepping away, "Of course, mum," she rested her hands in her lap, and then bunched the sides of her skirt to effect a small curtsy, "Your lessons were unforgiving, and every day in your care was suffering." Taking a small pause, she continued, "But truly, Madam Hardgreaves, the things you taught me over these years was so helpful. Nobody's as awful as you are, and it makes dealing with nobles so easy! I just thank the Gods that I'm not in one of your lessons and suddenly the most selfish noble becomes delightful."
 
 The governess burst into laughter, "Hah! Indeed child. It is good to hear your honesty." She cleared her throat, "In turn, I have only heard amazing things about the young Miss Steibelt and her wonderful manners. Not that I've ever seen anything to praise."
 
@@ -148,7 +148,7 @@ Ashna's eyes widened as she took the gift in two hands and promptly began devour
 
 The next words she cut off, and Clara smiled at her friend as they both shared the sombre moment. Clara turned away from Ashna after a moment to place her hand on the windowsill and look out at the street below, "Do you know why your foresight failed..? I know you were worried about it for the last little while."
 
-Ashna for her part turned back to her desk, "It's difficult, difficult, yes," her scaled brow furrowing as she absently scratched off one of her shedding scales. "It's been bothering me, but maybe not as much as radient magic. How do powerful beings like Gods and the like use magic without the weave? It doesn't make sense, make sense..."
+Ashna for her part turned back to her desk, "It's difficult, difficult, yes," her scaled brow furrowing as she absently scratched off one of her shedding scales. "It's been bothering me, but maybe not as much as radiant magic. How do powerful beings like Gods and the like use magic without the weave? It doesn't make sense, make sense..."
 
 Clara could hear in her friend's demeanour that the question was being avoided. For someone who took great pride in tarot and divination, not being able to foresee the death of their dearest friend must have felt deeply frightening, at least that was what Clara presumed. She could tell that Ashna had spent the time with her nose buried in books and questions to avoid the topic, but didn't know how to support her beyond the occasional visit and sweet bun.
 
@@ -288,7 +288,7 @@ He nodded softly, "Well, good luck then. You'll get it soon."
 
 On her way home, she walked past the Gylden Crater once more. The noise from the workmen had shifted from the sounds of hoists and coordination to the sound of drinking and cameraderie. The sun hung wide and low on the horizon, casting a dramatic spread of orange and red across the sky. The distant sound of the sea washing over her ears, and the squawking song of seagulls reaching her. As she listened to the soundscape before her, she found herself humming quietly, a melody that rose and fell with a soft, whispering voice.
 
-Moving down the street, she made for her final destination on that day. Tiv's place. Approaching the outside of the junkyard, Clara looked up at the pile of scrap, old ship parts and sheet metal that made up the kobold's humble home. Townspeople walking past behind her, and the sound of  ahorse cab clopping over the street drummed against her ears. 
+Moving down the street, she made for her final destination on that day. Tiv's place. Approaching the outside of the junkyard, Clara looked up at the pile of scrap, old ship parts and sheet metal that made up the kobold's humble home. Townspeople walking past behind her, and the sound of  a horse cab clopping over the street drummed against her ears. 
 
 Clara's ears were sensitive in this moment. If she strained, she could hear a breath, a cough, an insect's wings, her own heartbeat. She felt her cheeks getting warm, and her breath started to get caught in her throat. A small squeak escaped her throat and she wiped her face, trying to compose herself from crying. 
 
@@ -320,19 +320,19 @@ Yarlin, ever the flirt, push his hands up in surrender and turned to show the cr
 
 Yarlin unfurled a long, clawed finger and gestured to Clara's left. A sparking, spiralling song of harmony filled the air. The scents of fresh flowers filled the atmosphere around her, as her bright, cherry-pink hair tumbled down to her muddy, bare feet. Clad in a dress made from winter leaves, the pink-haired eladrin woman with eyes that sparkled like gemstones appeared next to her. "By me, my pixie." Titania, queen of the fae, had appeared in the flesh. 
 
-It wasn't ordinary for such godly beings to appear in the mortal realm, but as Clara looked around, she realised that there was very little of the mortal realm left in her surroundings. Long dais' holding important looking few were around her. Important and decorated members of the seelie court were staring at her with terrible, otherworldly gazes. Swirling purple mist and miasma whirled about the courtyard. The only beings out of place were herself, from the mortal realm and Yarlin, from the Nine Hells of Baator.
+It wasn't ordinary for such godly beings to appear in the mortal realm, but as Clara looked around, she realised that there was very little of the mortal realm left in her surroundings. Long dais' holding important looking fey were around her. Important and decorated members of the seelie court were staring at her with terrible, otherworldly gazes. Swirling purple mists and miasma whirled about the courtyard. The only beings out of place were herself, from the mortal realm and Yarlin, from the Nine Hells of Baator.
 
-Across from where Clara stood alongside Yarlin and Titania, were three large, wooden benches. Behind these benches were three creatures, on the left a small, bespectacled fey creature with a long nose, that Clara recognised as some form of bookish goblin. On the right was a bored looking, pale-skinned devil that she knew as a Wretch. In the middle was a creature with no distinct form, a swirling cloud of ancient energy.
+Across from where Clara stood alongside Yarlin and Titania, were three large, wooden benches. Behind these benches were three creatures, on the left a small, bespectacled fey creature with a long nose, that Clara recognised as some form of bookish goblin. On the right was a bored looking, pale-skinned devil that she knew as a Wretch. In the middle was a creature with no distinct form, a swirling cloud of ancient energy. The ancient symbol of Ao decorated the benches.
 
 "You stand before a tribunal of three," the bookish goblin spoke. "One fey, one abyssal, and one neutral adjudicator. Do you all accept the authority of this court? Any objections?"
 
 Clara looked up at the judges in quiet silence, and looked to Titania and Yarlin in turn. They remained quiet. Yarlin's respectful silence seemed strange to her, but she guessed this was part of his strategy.
 
-"Alright," the goblin adjusted his spectacles, and lifted a large sheet of paper, that almost seemed bigger than his head. The crinkling papers shuffled loudly. "We are here to settle the matter of the contract between Queen Titania of the Fey and her musician, the mortal violinist Clara Steibelt. Also here is a counter patron, the devil pirate Yarlin of Dis. Is this who you all are?" Yarlin and Titania nodded silently, and Clara remained quiet, feeling her fingers curl into a small ball.
+"Alright," the goblin adjusted his spectacles, and lifted a large sheet of paper, that almost seemed bigger than his head. The crinkling papers shuffled loudly. "We are here to settle the matter of the contract between Queen Titania of the Fey and her musician, the mortal violinist Clara Steibelt. Also here is a contesting patron, the devil pirate Yarlin of Dis, to speak as barrister for the signee. Is this who you all are?" Yarlin and Titania nodded silently, and Clara remained quiet, feeling her fingers curl into a small ball.
 
 "As this is a fey contract..." the goblin judge continued, "by tradition, I, the fey judge will be asking the questions. Now my understanding is that Clara has refused to play her violin for more than six months?"
 
-"That is correct," Titania responded calmly.
+"That is correct," Yarlin responded calmly.
 
 "And in exchange for her playing the violin she was supposed to have been awarded fey powers, is that correct?" His voice came out, biting the wind.
 
@@ -344,7 +344,7 @@ The small goblin's brow furrowed and knitted. "And she was awarded her powers?"
 
 "Well what in the realms is the problem? How is there possibly a case? Are we here to transfer the contract? Are we just here to execute the punishment to recompense the contract?" The goblin swept his hand across the court. "Speak! The floor is open."
 
-Yarlin stepped forward, "The contract is voided, adjuntar," his infernal baritone raising. "Clara found the powers insufficient to protect her friend, Tiv, so she was not awarded enough power by the faerie queen."
+Yarlin stepped forward, "The contract is voided, adjuntar," his infernal baritone raising. "My darl-- my ward, Clara, found the powers insufficient to protect her friend, Tiv, so she was not awarded enough power by the faerie queen. As written, the contract was to award 'the power to save your friends'. But evidently, adjuntar, one of those said friends is now dead and with the Raven queen. We request the immediate nullification of the contract of Queen Titania."
 
 "What?!" The small goblin's spectacles almost fell from his nose as he jumped. "Erm... my queen... do you have a response?"
 
@@ -354,7 +354,7 @@ Titania shook her head from side to side, silently. "It is as the devil said, mi
 
 Titania responded, "She was beset by a terrible depression. I allowed her the maximum possible extension, as stipulated in the contract, to ease her emotional distress." She took a small pause, clearing her throat, "Failing a sea elf trial in Lelenaes Aiqua was the cause. Again, she found the awarded powers insufficient."
 
-The Wrethed devil judge leaned forward, "Surely, Queen Titania, you're not suggesting to a court that represents powers of the cosmos that there was a circumstance where the power of the Feywild and the Seelie court were insufficient in tackling mortal affairs??"
+The Wretched devil judge leaned forward, "Surely, Queen Titania, you're not suggesting to a court that represents powers of the cosmos that there was a circumstance where the power of the Feywild and the Seelie court were insufficient in tackling mortal affairs??"
 
 Titania turned, looking at Clara, and feeling a small smile stretch across her face. "If I may, adjuntar," she said slowly, "It is a rare talent I deal with, and a rare circumstance in which I find myself." Stepping forward, the queen gracefully took the floor of the court. "The whims and mores of fate seduced me towards making a pact with this young violinist, the mortal Clara Steibelt. The tenacity of her soul and the music of her heart enchanted me, as it enchanted my counterpart, Yarlin of Dis. Ordinarily, I would take this opportunity to argue the merits of my magic, to talk until I was blue in the face about duty, power, caveats and legal matters." Taking a pause, she looked up to address the panel of judges, with her hand swept backwards towards Clara. "But ultimately, doing so here would remove from the universe this girl's music. The very thing my contract was designed to protect. So if I must admit to the powers of the universe, that my powers failed at a critical moment, then that is what I shall do." A smile curled at the side of her lips, "Because it is a faerie's whim."
 
