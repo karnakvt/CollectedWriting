@@ -336,7 +336,13 @@ Clara looked up at the judges in quiet silence, and looked to Titania and Yarlin
 
 "Alright," the goblin adjusted his spectacles, and lifted a large sheet of paper, that almost seemed bigger than his head. The crinkling papers shuffled loudly. "We are here to settle the matter of the contract between Queen Titania of the Fey and her musician, the mortal violinist Clara Steibelt. Also here is a contesting patron, the devil pirate Yarlin of Dis, to speak as barrister for the signee. Is this who you all are?" Yarlin and Titania nodded silently, and Clara remained quiet, feeling her fingers curl into a small ball.
 
-"As this is a fey contract..." the goblin judge continued, "by tradition, I, the fey judge will be asking the questions. Now my understanding is that Clara has refused to play her violin in any significant way for more than six months?"
+"Ordinarily," the wretch spoke in its rasping voice, "This court is convened for a contest between two patrons, when the details of contracts render the warlock unable to act. But we understand that there is no existing contract between Yarlin of Dis and Clara Steibelt?"
+
+Yarlin smiled softly, "Correct."
+
+"But you are still speaking on her behalf, as a contesting patron," the wretch clarified. Yarlin assented.
+
+"Very well," the goblin intoned, quickly writing something down with his quill pen. "As this is a fey contract..." the goblin judge continued, "by tradition, I, the fey judge will be asking the initial questions. Now my understanding is that Clara has refused to play her violin in any significant way for more than six months?"
 
 "That is correct," Yarlin responded calmly.
 
@@ -408,4 +414,4 @@ Clara's hands started trembling. The thing she was holding was beyond precious. 
 
 "Consider it a gift of goodwill, consider it an apology, consider it a parting gift or a way to honour the spirit of your dear companion. The fates are not finished toying with you, Clara, and seeing you succeed is of personal interest to me. Whether you like it or not, you still cannot channel magic yourself, and will need a patron for your upcoming trials. So, if it is your will, call to us again when you seek to draw on our power and we will give you gifts untold as we dance gaily to your music. Or, sign your soul to Yarlin and take him as your lover, wrap him around your finger and suck his magic dry. As a font of power, there are many patrons who will be keen to court you. In any case, for tonight, play for your father, and rediscover your music." Titania's voice giggled sweetly as the shadowy figure sucked into itself and vanished. A small whisper in the air, "As I said when we first met, Clara. A woman ought to have choices, wouldn't you say?"
 
-Clara felt herself smile softly, as she clutched the old violin to her chest. "Thank you... pink haired bitch... Titania." 
+Clara felt herself smile softly, as she clutched the old violin to her chest. "Thank you... Titania." 
