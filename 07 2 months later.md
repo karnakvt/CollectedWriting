@@ -336,7 +336,7 @@ Clara looked up at the judges in quiet silence, and looked to Titania and Yarlin
 
 "Alright," the goblin adjusted his spectacles, and lifted a large sheet of paper, that almost seemed bigger than his head. The crinkling papers shuffled loudly. "We are here to settle the matter of the contract between Queen Titania of the Fey and her musician, the mortal violinist Clara Steibelt. Also here is a contesting patron, the devil pirate Yarlin of Dis, to speak as barrister for the signee. Is this who you all are?" Yarlin and Titania nodded silently, and Clara remained quiet, feeling her fingers curl into a small ball.
 
-"As this is a fey contract..." the goblin judge continued, "by tradition, I, the fey judge will be asking the questions. Now my understanding is that Clara has refused to play her violin for more than six months?"
+"As this is a fey contract..." the goblin judge continued, "by tradition, I, the fey judge will be asking the questions. Now my understanding is that Clara has refused to play her violin in any significant way for more than six months?"
 
 "That is correct," Yarlin responded calmly.
 
@@ -374,7 +374,7 @@ The rumination of the judges was tense. The faeries that had gathered began to q
 
 "Erm... while it is unusual," his voice boomed with an unnatural, innate power that shook the bones of all present, "it is not entirely unprecedented for both patron and signee to desire the termination of a warlock contract," as he fell silent, his eyes started to glow with an ethereal energy. The devil spoke next, with the same voice, "These contracts are enforced by a power higher than all beings, and judged by this court, which all beings in the cosmos recognise."
 
-Both the devil and the goblin spoke in unison. "In light of the circumstances that both parties recognise. This court has decided it was the failure of the patron, Titania, to provide the power to protect the mortal life of the signee's beloved companion. This court has made the decision that the contract is not enforcible, and hence voided. All clauses are now null. All bindings between Titania, queen of the Fae and Clara Steibelt are broken, and neither is bound by any clause of the contract heresigned. Is this judgement understood?" The silence in the cosmic court was thick enough to cut. "So be it."
+Both the devil and the goblin spoke in unison. "In light of the circumstances that both parties recognise. This court has decided it was the failure of the patron, Titania, to provide the power to protect the mortal life of the signee's beloved companion. This court has made the decision that the contract is therefore not enforcible, and hence voided. All clauses are now null. All bindings between Titania, queen of the Fae and Clara Steibelt are broken, and neither is bound by any clause of the contract heresigned. Is this judgement understood?" The silence in the cosmic court was thick enough to cut. "So be it."
 
 Clara gasped as she felt the wind leave her lungs. A swirling pink and green cloud of energy being tugged from her soul as all her latent magical energy left her. The warlock contract was broken. Completely gone. Titania's magic no longer flowed in her veins, and her senses returned after a moment. 
 
@@ -394,17 +394,17 @@ The young guard flinched as she took his elbow and stammered, "O-Of course Cl-Cl
 
 As they turned to leave, a tall, hooded figure stepped before them. Looking up to her, Clara immediately recognised the shadowed figure. Looking to Alec, she saw that his head was thrown back, and he was fast asleep in an enchanted slumber. "Titania..." she whispered.
 
-The faceless, shadowed figure stepped forward. "Excuse me for interrupting again, young Clara," 
+The faceless, shadowed figure stepped forward. "Excuse me for interrupting again, dear Clara," 
 
 Clara tucked her chin slightly, "I can't believe... you broke it for me..."
 
 "I can't believe you played chicken with the cosmos," Titania's voice reverberated from the shadowed hood. Reaching into the folds of its cloak, the figure spoke, "A final gift from me," she said softly. "You're a rare mortal, Clara. The way your soul shines is unique in so many ways." From the folds of its cloak, Clara was presented with an old, intricately engraved, though elegantly plain cherrywood violin and bow.
 
-Clara reached out and took it, her hands trembling, "Truly... I thought I was going to die... is this... is..." Clara turned the fiddle over in her hand, inspecting the workmanship and quality. Her voice lost from surprise. The signature unmistakable, Antonio Steibelt.
+Clara reached out and took it, her hands trembling, "Truly... I thought I was going to die... is this... is..." Clara turned the fiddle over in her hand, inspecting the workmanship and quality. Her voice lost from surprise, her hands shaking as she realised the maker. The signature unmistakable, Antonio Steibelt.
 
 Titania spoke, "... a violin. Crafted at my request by the pirate fiddler, Antonio Steibelt," she said simply, "A personal friend of mine, and your great grandfather. Using techniques only he knew, and wood supplied by the oldest woods of the feywild. Grown by spriggans and blessed by owlbears. From a wood that sings the songs of morning and whispers the hymns of night. Strung by silk of feyspider and played exclusively in my personal court."
 
-Clara's hands started trembling. The thing she was holding was beyond precious. Looking up, a silent question hung in her mind. Why?
+Clara's hands started trembling. The thing she was holding was beyond precious. "This violin... we... we don't have an original Steibelt... they were all thought lost..." Looking up, a silent question hung in her mind. Why?
 
 "Consider it a gift of goodwill, consider it an apology, consider it a parting gift or a way to honour the spirit of your dear companion. The fates are not finished toying with you, Clara, and seeing you succeed is of personal interest to me. Whether you like it or not, you still cannot channel magic yourself, and will need a patron for your upcoming trials. So, if it is your will, call to us again when you seek to draw on our power and we will give you gifts untold as we dance gaily to your music. Or, sign your soul to Yarlin and take him as your lover, wrap him around your finger and suck his magic dry. As a font of power, there are many patrons who will be keen to court you. In any case, for tonight, play for your father, and rediscover your music." Titania's voice giggled sweetly as the shadowy figure sucked into itself and vanished. A small whisper in the air, "As I said when we first met, Clara. A woman ought to have choices, wouldn't you say?"
 
