@@ -58,7 +58,7 @@ Margaret Steibelt shook her head, "You're so hard on the poor girl," challenging
 
 Ms. Hardgreaves deflated slightly when Clara had left the room, an unusually soft expression coming over her face. "I know, of course, and I know you disapprove of my methods," she turned the the matriarch of the family. "I have raised countesses, duchesses, a baroness and a princess," she responded softly, "In all my years raising children, that girl stands out so remarkably. The last thing I want to teach her is that when the times are the hardest and dignity is all we have, then we ought grip that dignity with all the fury of Moradin." Petting the side of her lips with a napkin, "With that being said, I too shall excuse myself. Sir. Miss," nodding to the parents in turn.
 
-Clara waited in the entryway of the Steibelt residence. With all the talk of money, Clara now felt the weight of sentimentality that was contained in the hall. The full length portraits of her father, grandfather and great ancestor. Each with their violins in hand. Paintings of their children. Vases of flowers and ornate furnishings from far lands by master craftsmen. For her entire life she had taken these things in turn. Knowing that the purpose of everything, the house, the paintings, the history and the legacy was designed as an elaborate store front to sell the family instruments. Buying a Steibelt instrument meant buying into the story of their family, of Gylden and the little luthier that stowed away on a merchant ship two hundred years ago. The pirate fiddler.
+Clara waited in the entryway of the Steibelt residence. With all the talk of money, Clara now felt the weight of sentimentality that was contained in the hall. The full length portraits of her father, grandfather and great ancestor. Each with their violins in hand. Paintings of their children. Vases of flowers and ornate furnishings from far lands by master craftsmen. For her entire life she had taken these things in turn. Knowing that the purpose of everything, the house, the paintings, the history and the legacy was designed as an elaborate store front to sell the family instruments. Buying a Steibelt instrument meant buying into the story of their family, of Gylden and the little luthier that stowed away on a merchant ship two hundred years ago. Antonio Steibelt, the legendary pirate fiddler.
 
 Clara smiled as Ms. Hardgreaves descended the grand staircase. In her hand was Clara's small red coat. "Thank you for getting it for me, Ms Hardgreaves,"
 
@@ -96,9 +96,9 @@ Clara looked back at the governness. When prompted, almost a thousand responses 
 
 Ms. Hardgreaves trembled and stiffened, "I would do it for pleasure."
 
-Clara giggled, stepping away, "Of course, mum," she rested her hands in her lap, and then bunched the sides of her skirt to effect a small curtsy, "Your lessons were unforgiving, and every day in your care was suffering." Taking a small pause, she continued, "But truly, Madam Hardgreaves, the things you taught me over these years was so helpful. Nobody's as awful as you are, and it makes dealing with nobles so easy! I just thank the Gods that I'm not in one of your lessons and suddenly the most selfish noble becomes delightful."
+Clara giggled, stepping away, "Of course, mum," she rested her hands in her lap, and then bunched the sides of her skirt to effect a small curtsy, "Your lessons were unforgiving, and every day in your care was suffering." Taking a small pause, she continued, "But truly, Madam Hardgreaves, the things you taught me over these years was so helpful. Nobody's as awful as you are, and it makes dealing with nobles so easy! I just thank the Gods that I'm not in one of your lessons and suddenly the most selfish noble's behaviour becomes delightful."
 
-The governess burst into laughter, "Hah! Indeed child. It is good to hear your honesty." She cleared her throat, "In turn, I have only heard amazing things about the young Miss Steibelt and her wonderful manners. Not that I've ever seen anything to praise."
+The governess burst into laughter, "Hah! Indeed child. It is good to hear your honesty." She cleared her throat, "In turn, I have only heard amazing things about the young Miss Steibelt and her wonderful manners. Not that I've ever seen anything to praise." After a small pause, she added, "If the only thing I taught you was how to stand up straight for a change, to show off that lovely pink hair instead of hiding, that would be enough for me."
 
 Clara giggled, and after a moment asked, "What will you do now?"
 
@@ -122,7 +122,7 @@ The most surprising of all was Moidren. Outside of her room on that very night w
 
 Clara paused for a moment as she walked past the hospital district. A breeze took her hair for a moment as she looked out over the horizon. Men had been working in the Gylden crater for months now, but they still hadn't removed all of the rubble and debris that littered the area. It was surreal being able to look over the ocean from this part of the city. So much of it was flattened now. Below her, workmen yelled and hoisted a large stone block that had come loose. The city was still bleeding from Ben's attack. Clara felt her fingernails digging into her palm. "I'm going to murder that man..." she whispered softly to herself. Nevertheless, and despite herself, she took the time to admire the horizon, to feel the warm morning air on her skin, and listen to the sounds of the waking city.
 
-Moving onward, she nodded to Ma Baker, who by this time had thought better than to ask if Clara wanted a sweet bun that morning. The old lady couldn't hide her surprise when she saw the young girl approach. With a couple of silver pieces, Clara bought a cinnamon roll. The old baker smiling from ear to ear as she packed a smaller one along with the one Clara bought. "Nobody else will buy it anyway," she explained, "I hope one of your little friends likes it, Clara dear."
+Moving onward, she nodded to Ma Baker, who by this time had thought better than to ask if Clara wanted a sweet bun that morning. The old lady couldn't hide her surprise when she saw the young girl approach. With a couple of copper pieces, Clara bought a cinnamon roll. The old baker smiling from ear to ear as she packed a smaller one along with the one Clara bought. "Nobody else will buy it anyway," she explained, "I hope one of your little friends likes it, Clara dear."
 
 Moving down one of the alleyways of the shopping district, Clara finally approached the small, tattered curtain that covered Madam Crackleroar's humble fortune telling abode. She came in the rear of the shop, and announced her arrival, "Ashna? Madam Crackleroar?"
 
@@ -166,7 +166,7 @@ Clara paused for a moment, staring down at her open palm, "It's something to do 
 
 Ashna's eyes narrowed as she looked at Clara thoughtfully, "A string like a puppet string, attached by the contract." Clara cleared her throat awkwardly, but didn't respond. "And this works despite Titania not being a God, despite you not worshipping her?"
 
-Clara sighed and her gaze swept across to look Ashna in the face, "I'd say that Titania's rather in my bad books at the moment..."
+Clara sighed and her gaze swept across to look Ashna in the face, "Rather than worship... I'd say that Titania's rather in my bad books at the moment..."
 
 Ashna blinked in surprise, "Your bad books?" Clara nodded, but didn't specify. Ashna took a moment to consider her friend quietly. Turning back to her desk, "So how does that work with the magic? Can you still cast as you do normally?"
 
@@ -192,7 +192,7 @@ Clara smiled as she tucked the tarot reading away in her coat before leaving, "I
 
 As Clara left, Ashna looked to the doorway curtain, and opened a drawer to her right. Reaching in, she pulled a book that seemed to drip from knitted flesh. The wicked smile on the cover widening as it came into the light. "Okay... back to this... how to make a permanent servant with stable intelligence matrix WITHOUT evil divinity..." she mumbled under her breath. "How... to make... a Ben Goldbleed..."
 
-Clara felt a shiver in her spine as she walked towards Alcazar. In the moments after Ben Goldbleed and his hordes of undead were driven back by the mighty explosion, the greatest outpouring of humanity that Gylden had ever seen took place. The sheer magnitude of the magical war that had waged between the mighty necromancer, and the mysterious dwarven arch-wizard the town affectionately referred to as "Nelly" was something incomprehensible to most people. What was very comprehensible, on the other hand, was the sheer amount of death and destruction that had rained from the heavens to put an end to it. Clara always silently thanked whatever Gods would listen, that Ben Goldbleed was blamed for the explosion, and not her dear friend Tiv. Had it been the latter, she would have found her emotions difficult to work with.
+Clara felt a shiver in her spine as she walked towards Alcazar. In the moments after Ben Goldbleed and his hordes of undead were driven back by the mighty explosion, the greatest outpouring of humanity that Gylden had ever seen took place. The sheer magnitude of the magical war that had waged between the mighty necromancer and the mysterious dwarven arch-wizard Nelly was something incomprehensible to most people. Nevertheless, the event had truly shaken every citizen of Gylden to the core. The horrendous sight of the dead shambling to the shore, the dreadful feeling watching the powerful magics push against each other, the sheer amount of death and destruction that had rained from the heavens to put an end to it. Clara always silently thanked whatever Gods would listen, that Ben Goldbleed was blamed for the explosion, and not her dear friend Tiv. Had it been the latter, she would have found her emotions difficult to work with.
 
 After the initial disaster, which blasted away entire suburbs of the city, there was an immediate effort to scavenge the blast site and surrounding areas. The watch led by lady Esmerelda Gylden and her family, poured the coffers of the city and more into the rescue and preservation of life. The immediate issues were medical aide, a simple headcount to account for all the souls living, and supply of food and blankets to the newly homeless. People worked day and night, from all walks of life, clearing rubble, bandaging wounds and setting bones. From girls like Clara herself to strapping sailors and dock workers. They organised in shifts to clear the wreckage and take stock of the raw damage that had been done in the attack.
 
@@ -254,7 +254,7 @@ Clara sighed and nodded, leaning against the facade of the roof. "So weird..." s
 
 The only lead other than pixies for the missing supplies were a gang of workers that all bore snakes and roses on their shoulders. Matching tattoos were often a sign of brotherhood on long voyages for ship crews, not to mention undesirables. "Is it a dead end..?"
 
-Marcus shook his head, "Wood doesn't just grow legs and walk off... somebody knows what happened to that shipment, and there are families that need homes."
+Marcus shook his head, "Wood doesn't just grow legs and walk off... somebody knows what happened to that shipment from Theylanar, and there are families that need homes."
 
 Clara nodded softly. There was little else said between them as the sun made its way across the sky. At the last bell, the workmen cheered and hollered, their work song changing to a drinking song as the crowd of men jostled and clapped each other across the back. Clara rubbed the back of her neck, only to feel strong, rough knuckles pushing against her spine, "Mm!" she shivered from the sensation as her muscles unknotted.
 
@@ -270,11 +270,11 @@ His expression softened. Unable to remain stern with Clara so close to him, "The
 
 Clara smiled softly, her hand lifting from his cheek, "It will... you saw how I was a few nights after..."
 
-He thought back to a moment, finding Clara in a clearing by herself. A tear-streaked face as her blones creaked and crackled from eldritch energy. She'd been casting eldritch blast at a tree over and over again, as if that tree were the devil itself. The bark on the outside of it crackled to black ash as the wood stubbornly stood tall. She said later that she lost count how many times she'd slammed her blast into it, casting the cantrip over five hundred times.
+He thought back to a moment soon after the explosion, finding Clara in a clearing by herself. A tear-streaked face as her bones creaked and crackled from eldritch energy. She'd been casting eldritch blast at a tree over and over again, as if that tree were the devil itself. The bark on the outside of it crackled to black ash as the wood stubbornly stood tall. She said later that she lost count how many times she'd slammed her blast into it, casting the cantrip until her fingers burned.
 
 "How are you dealing with it?" he asked in the present. 
 
-Clara tucked her chin down. The question was deep, and it made her ruminate for a moment. "...maybe because I was already angry. About the stupid sea elf trial." Her eyes searched the ground between them for the answer as her head lowered. "I was angry at myself, and the world, and everything... and it didn't really help anyone. And when I saw everyone in pain..." she looked back up at him, her thought cut in the mniddle,  "... it still doesn't feel real... does it?" Marcus shook his head in agreement. Clara continued, "... anyway. If I want to be angry, I know who to be angry at," she looked him in the eye, "No man is responsible for this... for any of this. No man except for Ben Goldbleed." She reached out to take his hands, holding them softly in her own, "And if I want to smile, and want to feel love and warmth and happiness, then I know who to smile at," her smile crept slowly across her face. "My friends. The wardens of Masacoll."
+Clara tucked her chin down. The question was deep, and it made her ruminate for a moment. "...maybe because I was already angry. About the stupid sea elf trial." Her eyes searched the ground between them for the answer as her head lowered. "I was angry at myself, and the world, and everything... and it didn't really help anyone. And when I saw everyone in pain..." she looked back up at him, her thought cut in the middle,  "... it still doesn't feel real... does it?" Marcus shook his head in agreement. Clara continued, "... anyway. If I want to be angry, I know who to be angry at," she looked him in the eye, "No man is responsible for this... for any of this. No man except for Ben Goldbleed." She reached out to take his hands, holding them softly in her own, "And if I want to smile, and want to feel love and warmth and happiness, then I know who to smile at," her smile crept slowly across her face. "My friends. The wardens of Masacoll."
 
 After a moment, Marcus nodded softly, and soon found himself embracing the small girl. "Maybe I'll learn how to smile again too..."
 
@@ -302,7 +302,7 @@ Her eyes adjusting to the fading light, the lights of the fey began to surround 
 
 "There are more than normal..." Clara whispered to the pixie on her shoulder. The fey creatures of winter and wonder had slowly but surely gathered at Tiv's junkyard.
 
-"They want to hear you play, Clara..." she said simply. There was an edge to her words, as their old arguments echoed in her mind.
+"They want to hear you play, Clara..." she said simply. There was an edge to her words, perhaps a sense of concerned urgency.
 
 "I forgot my violin." Clara spoke with a soft finality. After a time, as she saw sprites, spriggans and mufflewumps appearing from the junkyard and around her, Clara raised her voice, "Tell your stupid queen I'm not playing!! I'm not playing, I won't play, And you can't make me!!" As she yelled she stomped her foot petulantly and pursed her lips.
 
@@ -320,9 +320,15 @@ Yarlin, ever the flirt, push his hands up in surrender and turned to show the cr
 
 Yarlin unfurled a long, clawed finger and gestured to Clara's left. A sparking, spiralling song of harmony filled the air. The scents of fresh flowers filled the atmosphere around her, as her bright, cherry-pink hair tumbled down to her muddy, bare feet. Clad in a dress made from winter leaves, the pink-haired eladrin woman with eyes that sparkled like gemstones appeared next to her. "By me, my pixie." Titania, queen of the fae, had appeared in the flesh. 
 
+Titania looked as regal as she ever did, even with her unconventional garments. She was impossibly beautiful, and her presence seemed to make the very air vibrate in celebration. "Have you prepared yourself, my darling captain? Clara?"
+
+Clara nodded quietly, and Yarlin scoffed, "Belive me, this will be a pleasure..."
+
+Titania sighed slowly, "Warlock contracts are enforced at a much higher court than either of us, devil. Be careful what you wish for..."
+
 It wasn't ordinary for such godly beings to appear in the mortal realm, but as Clara looked around, she realised that there was very little of the mortal realm left in her surroundings. Long dais' holding important looking fey were around her. Important and decorated members of the seelie court were staring at her with terrible, otherworldly gazes. Swirling purple mists and miasma whirled about the courtyard. The only beings out of place were herself, from the mortal realm and Yarlin, from the Nine Hells of Baator.
 
-Across from where Clara stood alongside Yarlin and Titania, were three large, wooden benches. Behind these benches were three creatures, on the left a small, bespectacled fey creature with a long nose, that Clara recognised as some form of bookish goblin. On the right was a bored looking, pale-skinned devil that she knew as a Wretch. In the middle was a creature with no distinct form, a swirling cloud of ancient energy. The ancient symbol of Ao decorated the benches.
+Across from where Clara stood alongside Yarlin and Titania, were three large, wooden benches. Behind these benches were three creatures, on the left a small, bespectacled fey creature with a long nose, that Clara recognised as some form of bookish goblin. On the right was a bored looking, pale-skinned devil that she knew as a Wretch. In the middle was a creature with no distinct form, a swirling cloud of ancient energy. The ancient symbol of Ao, overgod of the cosmos, decorated the benches.
 
 "You stand before a tribunal of three," the bookish goblin spoke. "One fey, one abyssal, and one neutral adjudicator. Do you all accept the authority of this court? Any objections?"
 
